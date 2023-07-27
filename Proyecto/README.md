@@ -1,0 +1,1 @@
+Principales resultados del proyecto. En el link al drive está el resto de funciones y experimentaciones hechas para el proyecto, pero aquí se concentran las entregas finales y resultados más importantes.
